@@ -15,7 +15,7 @@ The Academy of Integrated Science (AIS) has shifted from a program-focused model
 
 Enrollment growth has widened the capacity gap. We need additional collegiate faculty to maintain course coverage and support new offerings.
 
-In Nanomedicine, Dr. Chixia Tian's departure has left a significant gap. Dr. Penghui Zhao covers some courses as a post-doctoral researcher, but this is temporary. Although we are searching for one replacement, a single hire will leave the program with limited flexibility. A second line would expand upper-division course offerings in clinical medicine, biotechnology, and pharmaceuticals, and provide biology and chemistry coverage for the Integrated Science Curriculum.
+In Nanomedicine, Dr. Chixia Tian's departure has left a significant gap. Dr. Penghui Zhao covers two courses and is advising several students in undergraduate research. He was initially hirged as post-doctoral researcher but is now reclassified as instructor. Nonetheless, his positions remains temporary. Although we are searching for one replacement, a single hire will leave the program with limited flexibility. A second line would expand upper-division course offerings in clinical medicine, biotechnology, and pharmaceuticals, and provide biology and chemistry coverage for the Integrated Science Curriculum.
 
 The Science, Technology, and Law (STL) minor is also growing rapidly, yet only one full-time faculty member, James Steiner, J.D., is devoted to it. An additional line would be essential to sustain that growth.
 
